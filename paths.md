@@ -52,4 +52,4 @@ It requires less than one hour's sleep per day to function at max capacity.
 In fact, those with the Nightmare iron body, often sleep more to keep their bodies fresh than for the need to dream.
 For the iron mind can slip seemlessly into waking dreams, without any significant diminishing of situational awareness.
 In this state the mind can perceive that which is beyond most others.
-Legends tell of an Underlord on the path of the Dewdrop Lotus that could read the minds of any artist at a lower level of advancement.
+Legends tell of an Underlord on the path of the Dewdrop Lotus that could read the minds of even a Monarch.
