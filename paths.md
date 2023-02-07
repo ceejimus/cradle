@@ -38,7 +38,7 @@ The results of the trigger are fairly self-explanatory, as one can easily imagin
 The nature of their psychic madra can also cause these bombs to have similar effects on opponents as the hell shroud technique, but this is generally just a welcome side-effect.
 
 The irony of the contrast between the Dewdrop Lotus's wild and uncontrolled techniques and their penchant as saboteurs and spies has been noted by several a scholar.
-Aside from the wake technique, rarely do these artists use their psychic to attack enemies directly.
+Aside from the wake technique, rarely do these artists use their psychic techniques to attack enemies directly.
 They are useful mostly as mechanisms of escape, but can be quite useful in large-scale conflicts.
 
 ## The Nightmare Iron Body
