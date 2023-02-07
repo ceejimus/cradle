@@ -8,7 +8,7 @@ Almost every Dewdrop Lotus sacred artist receives the Nightmare iron body, tailo
 The unique dream/force madra on this path is referred to as "psychic" madra, and is perfectly suited to enhance an artist's mental state or distrupt and destroy an opponent's.
 The force aspect of the madra naturally penetrates madra channels and guides the dream aspect in a more offensive manner than most dream path techniques.
 While not soley designed for one-to-one combat scenarious, most sacred artists are more conditioned to guard themselves against physical injury.
-Combat against dream artists are fairly rare, and most dream styles focus on either creating illusions - such as the extinct White Fox path.
+Combat against dream artists are fairly rare, and most dream styles focus on creating and manipulating illusions - such as the extinct White Fox path.
 One mistep against madra specifically designed to break the shackles of one's sanity can leave an artist wishing they'd fought a more traditional opponent.
 
 ### Techniques
