@@ -32,7 +32,7 @@ Because most Dewdrop Lotus artists work alone or in small squads of others on th
 
 The basic forger technique of the Dewdrop Lotus is the "haunter."
 Barely perceptable explosive balls of force madra are cloaked in dream madra and natrually track those experiencing negative emotions.
-The name "haunter" comes from the apt tradition of artists forging these bombs into the shapes of ghosts and ghouls.
+The name "haunter" comes from the apt tradition of artists forging these bombs in the shapes of ghosts and ghouls.
 The bombs are triggered by low-levels of force madra accompanying varying levels of physical contact determined by the forger.
 The results of the trigger are fairly self-explanatory, as one can easily imagine the effects of a sudden release of compacted force madra.
 The nature of their psychic madra can also cause these bombs to have similar effects on opponents as the hell shroud technique, but this is generally just a welcome side-effect.
