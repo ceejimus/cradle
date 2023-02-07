@@ -23,7 +23,7 @@ Without the strength of the Nightmare iron body, this technique would be fatal, 
 Visual and aural processing, reaction speed, analytical potential; nearly all nervous system processing is amplified, resulting in one of the most versatile enforcer techniques in all of the sacred arts.
 
 The basic striker technique of the Dewdrop Lotus, the "concussive shell" or just the "shell", is a slow moving but powerful shock wave of psychic that directly damages the mind and the nervous system of the target.
-This technique is generally used in combination with others on the path to distract or disable the opponent in order to create an opening for attack.
+This technique is generally used to disrupt an enemy attack formation or in combination with others on the path to distract or disable an opponent in order to create an opening for attack.
 The natrual attributes of the path's "psychic" madra cause this attack to devastate the mind and nervous pathways while leaving the flesh undisturbed.
 
 The basic ruler technique of the Dewdrop Lotus, causes affected sacred artists in a certain radius to experience debilitating levels of anxiety, pain and fear.
