@@ -18,7 +18,7 @@ As with most paths, the foundation is split into 4 techniques.
 The basic enforcer technique of the Dewdrop Lotus is called "stimulous wake" or just "wake."
 Firstly, force madra is used to greatly increase the acceleration and deceleration capacity of the artist's limbs.
 This makes the artist able to move and strike more quickly and more powerfully without too much excess strain.
-The real power of the technique, however, is produced by forcing highly concentrated dream madra through the channels in the brain, the spine and the peripheral nervous.
+The real power of the technique, however, is produced by forcing highly concentrated dream madra through the channels in the brain, the spine and the peripheral nerves.
 Without the strength of the Nightmare iron body, this technique would be fatal, but the extraordinary resiliance of the iron mind, the sacred artist's mental capacity can be expanded beyond normal mortal means.
 Visual and aural processing, reaction speed, analytical potential; nearly all nervous system processing is amplified, resulting in one of the most versatile enforcer techniques in all of the sacred arts.
 
